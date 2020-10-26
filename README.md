@@ -3,11 +3,7 @@
 ![Alt Text](https://media.giphy.com/media/lFfLINS1MkZs4/giphy.gif)
 
 
-:small_orange_diamond: :small_orange_diamond: :small_orange_diamond: :small_orange_diamond: :small_orange_diamond: :small_orange_diamond: :small_orange_diamond: :small_orange_diamond:
-:small_orange_diamond: :small_orange_diamond: :small_orange_diamond: :small_orange_diamond:
-:small_orange_diamond: :small_orange_diamond: :small_orange_diamond: :small_orange_diamond:
-:small_orange_diamond: :small_orange_diamond: :small_orange_diamond: :small_orange_diamond:
-:small_orange_diamond: :small_orange_diamond: :small_orange_diamond: :small_orange_diamond:
+
 
 
 ### Sorry, but .. Who’s that? ?? 
